@@ -1,1 +1,1 @@
-# vfs52hyerrtskpest2g0vx9as4n7z.github.io
+# 这是一个用于在聊天软件中恶搞好友的链接项目
